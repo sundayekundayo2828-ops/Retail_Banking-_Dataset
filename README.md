@@ -10,7 +10,16 @@ I am currently open and available for Data Analyst opportunities, where I can co
 
 
 
+
+
+
+
+
+
+
 Retail Banking Portfolio Analytics & Customer Insights Dashboard Project
+
+
 
 
 
